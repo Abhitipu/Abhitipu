@@ -1,1 +1,0 @@
-My internship proof
